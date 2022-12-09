@@ -48,4 +48,4 @@ English - B2 (vast experience in communicating and conducting meetings with nati
 Polish - A1(level acceptable mainly for travel)
 
 ***
-
+> *a journey of a thousand miles begines with a single step*
