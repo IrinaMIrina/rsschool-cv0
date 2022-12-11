@@ -1,4 +1,4 @@
-https://IrinaMIrina.github.io/rsschool-cv/cv
+https://IrinaMIrina.github.io/rsschool-cv/
 
 
 
